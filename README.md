@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rajveer7004031830@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1d6I9sWW5FG8rVJnkNQNjIHN1lCLGML9t](https://drive.google.com/drive/folders/1d6I9sWW5FG8rVJnkNQNjIHN1lCLGML9t)
+- 📄 Know about my experiences [Get My Resume!](https://drive.google.com/drive/folders/1d6I9sWW5FG8rVJnkNQNjIHN1lCLGML9t)
 
 - ⚡ Fun fact **I think I am Funny**
 
